@@ -42,4 +42,9 @@ All I have to do is freakin' catch you in the act
 And boom, show the crew, you're done just like that
 So stop killing people like an overspoiled brat
 You gonna be a dead body, floating ghost, that facts
+Uh! Hit the buzzer, (beep)
+Min'na, come close, sore wa kuruu mitinggu
+Yeah guys, he's the impo- mate, WHAT ARE YOU DO?!
+Sono hito wa akaii janai, he's freakin' blue!!
+"I saw him by the panel when the lights went out"
 ```
