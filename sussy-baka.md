@@ -1,5 +1,6 @@
 # Sussy Baka - A Random Song About Among Us (Yes I'm Old)
-Release Year: 20XX<br>
+Release Year: 20XX
+
 Genre: Pop, EDM, Hip-Hop
 <hr>
 
