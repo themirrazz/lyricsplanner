@@ -4,7 +4,7 @@ Genre: Pop, EDM, Hip-Hop
 <hr>
 
 ```
-[chorus]
+[Chorus]
 You look like you play Among Us
 Anta wa saashi baka
 Red is look sus, impostaa
@@ -26,7 +26,7 @@ Shine, konoyarou! I saw just where you went
 Raitto wa hikaru janai, naze? I've got a good guess
 Ore no bengoshi wa one of the best (Woof!)
 
-[chorus]
+[Chorus]
 You look like you play Among Us
 Anta wa saashi baka
 Red is look sus, impostaa
@@ -44,7 +44,67 @@ So stop killing people like an overspoiled brat
 You gonna be a dead body, floating ghost, that facts
 Uh! Hit the buzzer, (beep)
 Min'na, come close, sore wa kuruu mitinggu
-Yeah guys, he's the impo- mate, WHAT ARE YOU DO?!
-Sono hito wa akaii janai, he's freakin' blue!!
-"I saw him by the panel when the lights went out"
+Yeah guys, he's the impo- wait, WHAT ARE YOU DO?!
+Kare wa akaii janai, he's freakin' blue!!
+"I saw him by the panel when the lights blacked out,"
+"He was standin' by a vent and he ran when I shout!"
+"Let's throw this blue perpetrator off, I've got zero doubt!"
+What on this spaceship are you i-
+(beep-beep-beep-beep-beep-beep-beep-beep)
+Blue was not the imposter... KU-
+
+Kare wa saashi baka, it's obviously red
+Boku kureji janai! I'm not over my head
+Akaii o iijekuto shite, please before we're all dead
+Mite, bakaya- kuso! You just missed him vent!
+
+[Chorus]
+You look like you play Among Us
+Anta wa saashi baka
+Red is look sus, impostaa
+You such a sussy baka
+Nante saashi baka
+
+[Verse 3]
+Why the kuso you ejecting green?
+There's nothing he did that you've seen!
+He fixed the lights making everything bright
+Impostaa janai, come on, don't you trust me?
+See, he's ejected and ofc lights are dark again
+Don't worry, I'll fix them, they'll be on in 10
+Ten seconds that is, unless that's when
+Red comes up and stabs my a-, that case I'm dead
+So I kinda need an escort to kinda come with me to
+The electrical room but I guess we need more than two
+Otherwise ya'll think that I'm the true sussy baka in here
+The answer is, let's go fix the lights, then grab a freakin' beer
+So come on, dare, anybody wanna come an escort me?
+I know that two and enough for you, so come on group of three
+Just two people to come with me or if you prefer the entire crew
+So then we can hopefully catch red unless he sabotaged security
+Oh no, what the hell now? Oxygen is flowing out!
+Somebody get over and fix it, immediately!
+Losin' air like I lost my original Peace Treaty!
+Demo Pisu Turiiti wa kuso if we're all dead,
+There's smth you can pull out of your bottom... it's called your head!
+
+Ike, kono supeessoshippu wa losin' air fast
+Akaii wa kuruumetto janai, that's fact
+kare wa kiiraa, demo, I got yo back
+Nan ji desu ka? Sore wa time to kick some- butt!
+
+[Chorus]
+You look like you play Among Us
+Anta wa saashi baka
+Red is look sus, impostaa
+You such a sussy baka
+Nante saashi baka
+
+[Outro]
+Akaii wa... iimpaastaa...
+HOORAA-
+...janai.
+What?! Damn it!
+
+And they all died. The end.
 ```
