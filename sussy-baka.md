@@ -1,4 +1,4 @@
-# Sussy Baka - A Random Song About Among Us (Yes I'm Old)
+# Sussy Baka
 Artists: themirrazz<br/>
 Album: AmOgAsS<br/>
 Release Year: 20XX<br/>
