@@ -36,6 +36,37 @@ Yeah you heard me, there's an imposter on the Skeld
 [Verse 2]
 You're blue now, walkin' in the cafeteria
 Looking to download huge craploads of secret data
-And I sneak behind you, you're dead now, RIP
-Just kidding!
+And someone sneaks behind you, you're dead now, RIP
+Just kidding! You reported the dead body!
+You think I actually care about you? Gosh, you're so pathetic!
+Great job, Sherlock. Yes, I'm the imposter, how aesthetic!
+Oh well, guess what, I just sabotaged the oxygen, and you can't stop me!
+Even if you do two other imposters remain, you couldn't possibly beat!
+You think you gon' eject me? If you do you'll feel my wrath...
+I'll reincarinate as purple and eject you're sorry... face.
+Yeah, that's what I was gonna say, nothing else, totally! Hahaha... chorus please!
+
+[Chorus]
+Taking an interstellar ride on the Skeld
+But hey now, you guys kinda mighta wanna yield
+If you don't you may not exist, killer in our midst
+Yeah you heard me, there's an imposter on the Skeld
+
+[Bridge]
+You think you can defeat us, bro?
+We posess powers of untold
+We can sabotage camera, motor, the O
+You cannot beat us, you litte... person
+Now, you've gotten cocky with us villains, and that's wrong
+You'll all be dead by the bridge of this hell of a song!
+Oh wait... we're already at the bridge? Perfect!
+That means it's time for you to suck my... my... to suck my...
+It's time for you to suck, PERIOD!
+(Ohhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh)
+
+[Chorus]
+Taking an interstellar ride on the Skeld
+But hey now, you guys kinda mighta wanna yield
+If you don't you may not exist, killer in our midst
+Yeah you heard me, there's an imposter on the Skeld
 ```
