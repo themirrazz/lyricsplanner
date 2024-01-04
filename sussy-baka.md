@@ -1,6 +1,7 @@
 # Sussy Baka
 Artists: themirrazz<br/>
 Album: AmOgAsS<br/>
+Track: 2 / XXX<br/>
 Release Year: 20XX<br/>
 Genre: Pop, EDM, Hip-Hop
 <hr>
