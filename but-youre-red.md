@@ -61,8 +61,10 @@ I thought that I could trust you but it turns out that I can't
 I told you all my secrets, and you just stabbed me in the back
 Despite color I thought that maybe you and me could be friends
 But what else was I expecting, because you're red
+
 Woah-oh-oh-oh
 Baby, ah-ahh
+
 Despite color I thought that maybe you and me could be friends
 But what else was I expecting, because you're red
 ```
