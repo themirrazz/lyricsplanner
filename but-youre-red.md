@@ -1,6 +1,7 @@
 # You're Red
 Artists: themirrazz<br/>
 Album: AmOgAsS<br/>
+Track: 1 / XXX<br/>
 Release Year: 20XX<br/>
 Genre: Pop
 <hr>
