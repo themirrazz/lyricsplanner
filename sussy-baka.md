@@ -1,4 +1,6 @@
 # Sussy Baka - A Random Song About Among Us (Yes I'm Old)
+Artists: themirrazz<br/>
+Album: AmOgAsS<br/>
 Release Year: 20XX<br/>
 Genre: Pop, EDM, Hip-Hop
 <hr>
