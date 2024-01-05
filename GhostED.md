@@ -3,7 +3,7 @@ Artists: themirrazz and [insert name of a country singer]<br/>
 Album: AmOgAsS<br/>
 Track: 5 / XXX<br/>
 Release Year: 20XX<br/>
-Genre: Country, Pop
+Genre: Country, Hip-Hop
 <hr/>
 
 ```
@@ -18,7 +18,7 @@ They suspected that I was the imposter and said
 That they'd be sure to give me one hell of a deletin'
 And that's when my girl to me rejected
 Right after that I got ejected
-Guess that today is just just not my dad
+Guess that today is just just not my day
 I'm not the imposter but they ejected me anyways
 
 [Chorus]
