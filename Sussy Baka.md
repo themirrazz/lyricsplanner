@@ -38,7 +38,7 @@ Nante saashi baka
 
 [Verse 2]
 I'm pretty sure you sabotaged
-The oxygen tanks sitting in the garrage
+The oxygen tanks sitting in the garage
 You think you can get the hell away with that?
 Well soon your life will just be a mirrage
 All I have to do is freakin' catch you in the act
