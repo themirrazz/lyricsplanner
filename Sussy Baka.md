@@ -46,7 +46,7 @@ And boom, show the crew, you're done just like that
 So stop killing people like an overspoiled brat
 You gonna be a dead body, floating ghost, that facts
 Uh! Hit the buzzer, (beep)
-Min'na, come close, sore wa kuruu mitinggu
+Min'na, come close, kore wa kuruu mitinggu
 Yeah guys, he's the impo- wait, WHAT ARE YOU DO?!
 Kare wa akaii janai, he's freakin' blue!!
 "I saw him by the panel when the lights blacked out,"
