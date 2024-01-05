@@ -41,6 +41,7 @@ We're so sorry Imposters, jk, we're really not
 We have to kick you out of our ship before we're gone
 Gomen'nasai Imposters, omae wa aho
 You're annoying y tu eres un poco loco
+(¡Arriiiiiiibaaaaa!)
 
 [Chorus]
 Spooky sussy Imposters
