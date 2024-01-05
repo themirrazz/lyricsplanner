@@ -16,7 +16,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 
@@ -32,7 +32,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 
@@ -48,7 +48,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 
@@ -64,7 +64,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 (Gimme a repeat)
@@ -73,7 +73,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 (One more time now!)
@@ -82,7 +82,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 (That's it!)
@@ -91,7 +91,7 @@ Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
 Spooky sussy Imposters
-You're they're next victim
+You're their next victim
 They kill and trill as your blood spills
 They kill and trill as your blood spills
 And hope... you... rest in... uh...
