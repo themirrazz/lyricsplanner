@@ -97,6 +97,7 @@ They kill and trill as your blood spills
 They kill and trill as your blood spills
 And hope... you... rest in... uh...
 SCUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUM!
+(Kono kuso yarō, tu eres stupido)
 
 [Outro]
 Take that, imposters!
