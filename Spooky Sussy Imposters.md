@@ -86,7 +86,7 @@ You're their next victim
 They kill and trill as your blood spills
 They hope you rest in... uhmm
 (That's it!)
-pooky sussy Imposters
+Spooky sussy Imposters
 Shoot bullets through your skull
 Their big-ass mouths make things go south
 They'll eat your body whole
